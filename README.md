@@ -1,2 +1,2 @@
-# Remedios-T.-Sibug
+# Remedios Sibug
 Survivor
